@@ -8,4 +8,5 @@
 -
 https://zekrypt.itch.io/sleepitsy
 -
-تقدر تشوف الفيديو بتاع التجربة واللعبة عندي في القناة
+تقدر تشوف الفيديو بتاع التجربة واللعبة عندي في القناة: https://www.youtube.com/watch?v=x13jqzCXH8g&feature=youtu.be
+
